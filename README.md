@@ -1,2 +1,2 @@
 # spooky-cemetery
-This for practice
+what yall gonn do bout it
